@@ -1,0 +1,867 @@
+---
+title: "43+ Buildings clip art info"
+date: 2021-10-09
+publishDate: 2021-07-11T01:41:28Z
+image: "https://i.pinimg.com/originals/f7/5b/55/f75b55396086f9369b7a53bb5b4df0d1.jpg"
+author: "Duke" # use capitalize
+description: "Your Buildings clip art images are ready in this website. Buildings clip art are a topic that is being searched for and liked by netizens today. You can Download the Buildings clip art files here. Download all free photos in sini."
+categories: ["Vector of Business Ideas"]
+tags: ["Vector of Business Ideas"]
+keywords: "Buildings clip art"
+draft: false
+
+---
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="utf-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>
+        Buildings Clip Art
+    </title>
+    <p>
+    Your Buildings clip art images are available in this site. Buildings clip art are a topic that is being searched for and liked by netizens now. You can Find and Download the Buildings clip art files here. Download all free photos and vectors in sini. Buildings clip art was covered robust and item by item.
+</p>
+   
+	
+<!--more-->
+    
+	
+	
+</head>
+<body>
+<header>
+
+<p>
+      
+If you're looking for <strong>buildings clip art</strong> images information connected with to the <strong>buildings clip art</strong> interest, you have pay a visit to the right  blog.  Our website frequently  gives you  hints  for seeking  the maximum  quality video and picture  content, please kindly hunt and find more informative video content and images  that fit your interests.</p>
+        
+</header>
+<main>
+<article>
+    
+
+<div class="navi text-center">
+                    <p align="justify">   <br>              
+            </p>
+                                        <a class="badge badge-dark" href="/post/constellation-vector-set.html">Constellation vector set</a>
+                                            <a class="badge badge-primary" href="/post/dreaming-in-color.html">Dreaming in color</a>
+                                            <a class="badge badge-danger" href="/post/diamond-blur-background-image.html">Diamond blur background image</a>
+                                            <a class="badge badge-dark" href="/post/construction-vehicles-silhouettes.html">Construction vehicles silhouettes</a>
+                                            <a class="badge badge-primary" href="/post/dynamic-curve-infographic-template.html">Dynamic curve infographic template</a>
+                                            <a class="badge badge-success" href="/post/construction-area-vector.html">Construction area vector</a>
+                                            <a class="badge badge-primary" href="/post/digital-background-vector.html">Digital background vector</a>
+                                            <a class="badge badge-success" href="/post/cool-grid.html">Cool grid</a>
+                    </div>
+    
+**Buildings Clip Art**. 5 out of 5 stars 20 Sale Price 249 249 499 Original Price 499. Building clipart images clip art graphics to download - Classroom Clipart. 502 famous buildings clip art. 78 BUILDINGS clip art building vector clipart building print building image buildings design buildings illustration buildings graphics ChrisssyShop.  
+            <figure>
+        <img class="v-cover ads-img" src="https://i.pinimg.com/736x/ab/2c/73/ab2c735b3680646f517eb68e527145f0.jpg" alt="Houses Clipart Houses Clip Art Buildings Clipart Cottage Clipart Buildings Clip Art House Clipart Homes Clipart In 2021 House Clipart Clip Art House Cartoon" style="width: 100%; padding: 5px; background-color: grey;"  onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQhfNYvfG-2yCH11gLN6q4xRKyUfnG8JDLnlIxRCE0Os9K2_Qup-WQsbAPY2O7oe97WU80';">
+        <figcaption>Houses Clipart Houses Clip Art Buildings Clipart Cottage Clipart Buildings Clip Art House Clipart Homes Clipart In 2021 House Clipart Clip Art House Cartoon from www.pinterest.com</figcaption>
+    </figure>
+    
+<div>
+<span class="garis">
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 570 x 570 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span>
+<span class="garis"> 
+</div>
+<p>
+Browse 339886 buildings stock illustrations and vector graphics available royalty-free or search for office building or architecture to find more great stock images and vector art. 34 Black and White Clip ArtAll images have high resolution and are in PNG formats so they can easily be layer. 40 OFF the next 24 HOURS Personal and Commercial useMACSTAR Clips This set includes. Cityscape Illustration With Buildings In Flat Design Style. 78 BUILDINGS clip art building vector clipart building print building image buildings design buildings illustration buildings graphics ChrisssyShop. A free Story Planner PDF can be downloaded.
+
+### Free Tall Buildings Clip Art.<br>
+702984 Building clip art images on GoGraph. Cityscape Illustration With Buildings In Flat Design Style. City Buildings Clip Art Free Download. 5 out of 5 stars 20 Sale Price 249 249 499 Original Price 499. A scalar quantity is a measurable. 20 off Favorite Add to. Vector illustration of a city area with many tall buildings. Cityscape Icon Set Of Buildings. 13 color and 13 black lined The actual images are. Download high quality Building clip art from our collection of 65000000 clip art graphics. 30092020 85359 clip art building stock photos vectors and illustrations are available royalty-free.
+</p>
+</article>
+
+<section>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Houses Clipart Houses Clip Art Buildings Clipart Cottage Clipart Buildings Clip Art House Clipart Homes Clipart In 2021 House Clipart Clip Art House Cartoon" src="https://i.pinimg.com/736x/ab/2c/73/ab2c735b3680646f517eb68e527145f0.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQhfNYvfG-2yCH11gLN6q4xRKyUfnG8JDLnlIxRCE0Os9K2_Qup-WQsbAPY2O7oe97WU80';" />
+<figcaption>
+<Medium>Houses Clipart Houses Clip Art Buildings Clipart Cottage Clipart Buildings Clip Art House Clipart Homes Clipart In 2021 House Clipart Clip Art House Cartoon - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 570 x 570 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+Providing a collection of Architecture. Cityscape Illustration With Buildings In Flat Design Style. 68 Clip Arts in Total As shown in the preview34 Color Clip Art. Building clipart images clip art graphics to download - Classroom Clipart. Clip art related to buildings architecture and structures.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Community Buildings Clip Art Bundle Educlips Clipart Art Bundle Preschool Themes Clip Art" src="https://i.pinimg.com/474x/e5/9f/96/e59f965528fb487712e74282fe011dc2--art-clip-community-building.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQlXUPElT-7IZ6incOoLNAgY0iy5wKw8oepz8KNRw66OGkl_wRv5dPKcy81VggWk95VExY';" />
+<figcaption>
+<Medium>Community Buildings Clip Art Bundle Educlips Clipart Art Bundle Preschool Themes Clip Art - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 350 x 348 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+- Bank - Cinema Theater - Fire Station - Garage Auto Repair Sop - Gas Station - Grocery Store Market - Hospital - Library - Police Station - Post Office - Restaurant - Sc. Building icons set Vectors Illustration by youichi 106 8854 Building illustrations Clipart Vector by mikemcd 58 6917 Buildings logo Clip Art Vector by glopphy 17 790 building silhouettes Vector Clip Art by Daevid 14 9416 Urban buildings in the city Vector Clipart by soleilc 16 3733 20 buildings. 30092020 85359 clip art building stock photos vectors and illustrations are available royalty-free. SVG AI EPS Show. Free vector graphics for all big cities urban life modern architecture tall buildings skyscrapers and busy lifestyle projects.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Town Buildings Clip Art Color And Outlines Building Illustration Clip Art Town Building" src="https://i.pinimg.com/originals/7c/61/ee/7c61eebd315800996bced1d8bfe30b39.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR5nujW77dFM32sq8QXsiQMbU291B9nu7spktq_7RZzrpH6V5ioCtf1-XC0N0Cy0jfw_3o';" />
+<figcaption>
+<Medium>Town Buildings Clip Art Color And Outlines Building Illustration Clip Art Town Building - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 278 x 350 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+- Bank - Cinema Theater - Fire Station - Garage Auto Repair Sop - Gas Station - Grocery Store Market - Hospital - Library - Police Station - Post Office - Restaurant - Sc. Bank Clipart Building Clip Art Banking Colonial Column Money Greek Architecture Store Icon Cute Digital Graphic Design Small Commercial Use LittleRedFoxShoppe. Fishing boats clip art. Cityscape Illustration With Buildings In Flat Design Style. A scalar quantity is a measurable.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Houses Clipart Houses Clip Art Buildings Clipart Cottage Clipart Buildings Clip Art House Clipart Homes Clipart House Clipart Cartoon House Clip Art" src="https://i.pinimg.com/474x/ff/e9/85/ffe985b5d9add5b1390c87efa4ca84b4.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQWd14YH0rkFgMVgM_oLOIck26Fc6toB9Ek2ayWhNO6-beLxHaYy0zmYYb4RMqy0yva2Ao';" />
+<figcaption>
+<Medium>Houses Clipart Houses Clip Art Buildings Clipart Cottage Clipart Buildings Clip Art House Clipart Homes Clipart House Clipart Cartoon House Clip Art - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 270 x 340 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+Choose the file type and the file format. Browse 339886 buildings stock illustrations and vector graphics available royalty-free or search for office building or architecture to find more great stock images and vector art. For personal and commercial use. Khan academy is a 501c3 nonprofit organization. City With Buildings And Skyscrapers.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Community Buildings Clip Art Commercial Use Clip Art Community Building Community" src="https://i.pinimg.com/originals/ea/4d/a2/ea4da2f242786a0be3b57b9ae33e5a63.png" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTWA8f7zKF0dvREOXzwXYg_kCKdJATr8WhEvps2RZWp9L65ACaTc83Aonq-t9Xr-72NVng';" />
+<figcaption>
+<Medium>Community Buildings Clip Art Commercial Use Clip Art Community Building Community - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 1670 x 1670 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: png </span>
+</span></div>
+</figcaption></figure>
+<p>
+Community Buildings Clip Art 34 files png transparent background 17 color17 black-white more includes 34 JPG files size one files about 4 inch 300 dpi Original authoring technique boldly use for commercial purposes. SVG AI EPS Show. Denver Skyline With Color Buildings Blue Sky. 50 off Favorite Add to. 502 famous buildings clip art.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Houses Clipart Houses Clip Art Buildings Clipart Cottage Clipart Buildings Clip Art House Clipart Homes Clipart House Clipart Cartoon House House Cartoon" src="https://i.pinimg.com/736x/ec/0f/c9/ec0fc9a3598bfa34a2c02fcd6f5b21ac.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT2VS7inFYTRnx2XD7_HLbg9m3XTK1XGiiFbvKIPa8psOwqkVr8EIXr8xgIRrN5uIv4kCE';" />
+<figcaption>
+<Medium>Houses Clipart Houses Clip Art Buildings Clipart Cottage Clipart Buildings Clip Art House Clipart Homes Clipart House Clipart Cartoon House House Cartoon - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 570 x 570 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+13 color and 13 black lined The actual images are. 1075 capitol building clip art free. A scalar quantity is a measurable. Wireframe of the building of the blue lines on a dark background. See clip art building stock video clips.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Community Buildings Clip Art For Digital By Clips And Salsa Teachers Pay Teachers Digital Paper Map Projects Clip Art" src="https://i.pinimg.com/474x/07/6b/5b/076b5bf126374ae0c013345e55970dca.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQKzHumzmTfMwRSszUtUpsM68nwnwk7xbRsAwdQrNQbVRhwKKdrYFBb00nxvy4EOA7fWJ8';" />
+<figcaption>
+<Medium>Community Buildings Clip Art For Digital By Clips And Salsa Teachers Pay Teachers Digital Paper Map Projects Clip Art - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 350 x 350 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+City buildings line icon set City buildings line icon set. As an abcteach member you have unlimited access to our 22000 clipart illustrations and can use them for commercial use. Bank Clipart Building Clip Art Banking Colonial Column Money Greek Architecture Store Icon Cute Digital Graphic Design Small Commercial Use LittleRedFoxShoppe. Building clipart images clip art graphics to download - Classroom Clipart. Buildings Clip Art - Royalty Free.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Town Buildings Clipart Town Building Clip Art Community Clipart" src="https://i.pinimg.com/736x/58/bc/eb/58bcebf1a4ff90c47f4325c842d3bc9f.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRuXktrjjqyDx3KNGQp5xWliiVlMeGVL2BPySG0Cdrys2hXmyjZz1olcZ49p_1rQEQegSI';" />
+<figcaption>
+<Medium>Town Buildings Clipart Town Building Clip Art Community Clipart - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 386 x 580 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+As an abcteach member you have unlimited access to our 22000 clipart illustrations and can use them for commercial use. It shows the images. 1075 capitol building clip art free. For personal and commercial use. Cityscape Illustration With Buildings In Flat Design Style.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="My Community Buildings Clipart 300 Dpi Transparent Png Etsy Community Building French Buildings Clip Art" src="https://i.pinimg.com/736x/23/9d/fd/239dfd67b6bca74931c52777ced07ad7--zoo-park-block-center.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTnYZxgwZ9wbSQVV5LcX1haYyZ_fxcZKqiFRoYkZ9zpRYU7qczM5pScxchB3Mndmel9k1c';" />
+<figcaption>
+<Medium>My Community Buildings Clipart 300 Dpi Transparent Png Etsy Community Building French Buildings Clip Art - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 582 x 735 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+Fishing boats clip art. 702984 Building clip art images on GoGraph. Pet hotel clip art. Community Buildings Clip Art 34 files png transparent background 17 color17 black-white more includes 34 JPG files size one files about 4 inch 300 dpi Original authoring technique boldly use for commercial purposes. Download high quality Building clip art from our collection of 65000000 clip art graphics.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="My Community Buildings In French Clipart 300 Dpi Transparent Etsy Community Building French Buildings Clip Art" src="https://i.pinimg.com/originals/9b/b3/2f/9bb32f657b721fb6bf02f90944bfb15f.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRaFWWqJHdyDvnW5xbtA3xliMQApQlLo05Paptbygo3qaMo7gkv8uNb3ubgp1Y7GQHWWc0';" />
+<figcaption>
+<Medium>My Community Buildings In French Clipart 300 Dpi Transparent Etsy Community Building French Buildings Clip Art - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 458 x 570 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+City With Buildings And Skyscrapers. 30092020 85359 clip art building stock photos vectors and illustrations are available royalty-free. Vector Vectors Illustration by. Community Buildings Clip Art 34 files png transparent background 17 color17 black-white more includes 34 JPG files size one files about 4 inch 300 dpi Original authoring technique boldly use for commercial purposes. Light detailed sketch of a modern building Sketching of a modern house with trees in the background.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Town Buildings Clipart Town Building Building For Kids Clip Art" src="https://i.pinimg.com/originals/c7/da/22/c7da2227a2baa4dfbbb5a8bd9731b336.png" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQcNDWgZH3ISdIgCKP_MiH42wc_AxHN8Izwp_B7XodTDBwOesfEWdkdi7wNYfRDytHPhrY';" />
+<figcaption>
+<Medium>Town Buildings Clipart Town Building Building For Kids Clip Art - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 3600 x 3600 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: png </span>
+</span></div>
+</figcaption></figure>
+<p>
+Community Buildings Clip Art 34 files png transparent background 17 color17 black-white more includes 34 JPG files size one files about 4 inch 300 dpi Original authoring technique boldly use for commercial purposes. A free Story Planner PDF can be downloaded. Save 15 on iStock using the promo code. 5 out of 5 stars 20 Sale Price 249 249 499 Original Price 499. Bank Clipart Building Clip Art Banking Colonial Column Money Greek Architecture Store Icon Cute Digital Graphic Design Small Commercial Use LittleRedFoxShoppe.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="City Buildings Clip Art 22 Png By Frankiesdaughtersdesign On Creativemarket Watercolor House Painting Watercolor Flowers Paintings Shrink Art" src="https://i.pinimg.com/originals/63/f0/ad/63f0ade72ba5e105fdae27aaa38276e5.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTYnL_mDLwG6dsBfQGl7StlymcVXZ1ow5x5H5MzY-H2eNh4ld_dFgILTQS3UkIIltz3tyA';" />
+<figcaption>
+<Medium>City Buildings Clip Art 22 Png By Frankiesdaughtersdesign On Creativemarket Watercolor House Painting Watercolor Flowers Paintings Shrink Art - Source: pt.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 386 x 580 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+78 BUILDINGS clip art building vector clipart building print building image buildings design buildings illustration buildings graphics ChrisssyShop. Browse 339886 buildings stock illustrations and vector graphics available royalty-free or search for office building or architecture to find more great stock images and vector art. 13 color and 13 black lined The actual images are. Download high quality Building clip art from our collection of 65000000 clip art graphics. Solid color walls and many windows on the skyscrapers.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Houses Clip Art Set Houses Clipart Cute Houses Image 0 House Clipart Clip Art Cute House" src="https://i.pinimg.com/originals/65/ac/2f/65ac2f81290c3e815c9d1fba48a9bb81.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR5_mLERFyB4HxQpWwsfjlADMaRCTdxIgYTME0ADpJi3umBih9KeEHeBDXhOQLhbMVJP74';" />
+<figcaption>
+<Medium>Houses Clip Art Set Houses Clipart Cute Houses Image 0 House Clipart Clip Art Cute House - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 1208 x 1500 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+10 off all Shutterstock plans with coupon code DOMAINVECTOR. Abstract City Buildings Illustration Set. See clip art building stock video clips. 78 BUILDINGS clip art building vector clipart building print building image buildings design buildings illustration buildings graphics ChrisssyShop. Free building vector pack with landmark vector graphics city skyline illustrations streets palaces skyscrapers villa and country houses.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Shops Clipart Buildings Clipart Shop Clipart Building Clip Art Cafe Clipart Restaurant Clipart Stores Clipart Store Clip Art In 2021 Shopping Clipart Clip Art Art Shop" src="https://i.pinimg.com/736x/4c/7d/43/4c7d434eca28a62b43dde2656c785ca3.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQefiuGaN6VYDM2E0w1Rk83ZOJ2a_rxZwKmsxfLaXRy9CfERcVh1rNMdZrKCorEJmjov50';" />
+<figcaption>
+<Medium>Shops Clipart Buildings Clipart Shop Clipart Building Clip Art Cafe Clipart Restaurant Clipart Stores Clipart Store Clip Art In 2021 Shopping Clipart Clip Art Art Shop - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 570 x 570 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+Building icons set Vectors Illustration by youichi 106 8854 Building illustrations Clipart Vector by mikemcd 58 6917 Buildings logo Clip Art Vector by glopphy 17 790 building silhouettes Vector Clip Art by Daevid 14 9416 Urban buildings in the city Vector Clipart by soleilc 16 3733 20 buildings. House trees and details are in 3 different layers. Providing a collection of Architecture. City With Buildings And Skyscrapers. Choose the file type and the file format.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Houses And Buildings Clip Art Row Of Buildings Clip Art Fantasy City Colourful Buildings" src="https://i.pinimg.com/originals/23/e5/c1/23e5c167d6ef50ca1731b6bef81f635a.gif" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTwIk_JJc1231db1aBmIDd2SAygA-OMokZxZkaTKOPVtF9xhXpUCp33ZcwErGRCtoOtWB4';" />
+<figcaption>
+<Medium>Houses And Buildings Clip Art Row Of Buildings Clip Art Fantasy City Colourful Buildings - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 213 x 345 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: gif </span>
+</span></div>
+</figcaption></figure>
+<p>
+Denver Skyline With Color Buildings Blue Sky. It shows the images. Community Buildings Clip Art. 50 off Favorite Add to. 1075 capitol building clip art free.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Bolo" src="https://i.pinimg.com/originals/b1/47/5d/b1475d8380f4e31fbc0dd7371f237434.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRa4zSjtjx2bMdo2WLv6mWBojTdiiPtjDObf-nhnzcFxrFB73Q0J1OAg8NmRyKT-CcR13E';" />
+<figcaption>
+<Medium>Pin On Bolo - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 455 x 570 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+Court House Grayscale clipart is great to illustrate your teaching materials. A vector is. Wireframe of the building of the blue lines on a dark background. As an abcteach member you have unlimited access to our 22000 clipart illustrations and can use them for commercial use. 5 out of 5 stars 20 Sale Price 249 249 499 Original Price 499.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Community Buildings Clip Art Community Building Places In The Community Community Helpers Theme" src="https://i.pinimg.com/originals/e1/fb/08/e1fb08e1e74e7ff6fdc028e1d9ebe790.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSFdpY6GT3AGL2F9wpfhdMuK9dVDwjHiDqRGMkbVDspmu_YRq7ZGknce53eYDVkOpA1RVw';" />
+<figcaption>
+<Medium>Community Buildings Clip Art Community Building Places In The Community Community Helpers Theme - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 350 x 270 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+Browse 339886 buildings stock illustrations and vector graphics available royalty-free or search for office building or architecture to find more great stock images and vector art. 68 Clip Arts in Total As shown in the preview34 Color Clip Art. Wireframe of the building of the blue lines on a dark background. Court House Grayscale clipart is great to illustrate your teaching materials. 502 famous buildings clip art.
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Suli Ovi" src="https://i.pinimg.com/originals/f7/5b/55/f75b55396086f9369b7a53bb5b4df0d1.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSENgtq-BaEli4NJshRzhJjudCUTKuFLkCP8kU86jPvT5iTxfAGQhjsmWp2Hd7pKoJrQyg';" />
+<figcaption>
+<Medium>Pin On Suli Ovi - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 270 x 340 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+House trees and details are in 3 different layers. Building icons set Vectors Illustration by youichi 106 8854 Building illustrations Clipart Vector by mikemcd 58 6917 Buildings logo Clip Art Vector by glopphy 17 790 building silhouettes Vector Clip Art by Daevid 14 9416 Urban buildings in the city Vector Clipart by soleilc 16 3733 20 buildings. Instructions for Downloading Clip Art. Pet hotel clip art. Community Buildings Clip art COMMUNITY BUILDINGS CLIPART Included is a set of 26 individual files.
+</p>
+</aside>
+</section>
+<p>
+This site is an open community for users to <a rel="nofollow" href="/contact.html"> share their favorite wallpapers on the internet</a>, all images or pictures in this site are for personal wallpaper use only, it is stricly prohibited to use this wallpaper for commercial purposes, if you are the author and find this image is shared without your permission, please kindly raise a DMCA report <a href="/contact.html">Contact Us</a>.
+</p>
+<p>If you find this site beneficial, please support us by sharing this posts to your own social media accounts like Facebook, Instagram and so on or you can also save this blog page with the title buildings clip art by using Ctrl + D for devices a laptop with a Windows operating system or Command + D for laptops with an Apple operating system. If you use a smartphone, you can also use the drawer menu of the browser you are using. Whether it's a Windows, Mac, iOS or Android operating system, you will still be able to bookmark this website.</p>
+</section>
+         
+<center>
+<div class="d-block p-4">
+	<center>
+		<!-- BOTTOM BANNER ADS -->
+	</center>
+</div></center>
+</main>
+
+<!-- Footer CSS JS -->        
+</body>
+
+</html>
