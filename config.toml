@@ -64,7 +64,7 @@ url = "dmca"
 weight = 5
 
 [[menu.main]]
-name = "DMCA"
+name = "Blog"
 url = "post"
 weight = 6
 
